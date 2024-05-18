@@ -8,6 +8,6 @@ Meu nome é Marcelo Paludetto
  
  ### Você NÃO pode entrar em contato comigo 
 
+![](https://media1.tenor.com/m/fwFci6Y5wyQAAAAC/yagi-toshinori.gif)
 
-
-![](https://media1.tenor.com/m/GRtoaWi2Bi8AAAAd/deku-midoriya.gif0)
+![](https://media1.tenor.com/m/iGGO1bq2ELEAAAAC/mha-my-hero-academia.gif)
