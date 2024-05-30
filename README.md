@@ -1,6 +1,6 @@
 ### BEM VINDOS 👋
 
-Meu nome é Marcelo Paludetto
+Meu nome é Ryan Rodrigues
 
 - Estou estudando na Alura
 - Estou me desenvolvendo na linguagem JavaScript
